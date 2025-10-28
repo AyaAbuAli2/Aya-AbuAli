@@ -47,5 +47,5 @@ Psychological balance is key in my personal and professional life.
 ### 📬 Let's Connect
 
 - 💌 Email: [ayaabuali2002s@gmail.com](ayaabuali2002s@gmail.com)
-- 🔗 LinkedIn: [linkedin.com/in/aya-abuali](https://linkedin.com/in/aya-abuali)  
+- 🔗 LinkedIn: [www.linkedin.com/in/aya-abuali-340703382](www.linkedin.com/in/aya-abuali-340703382)  
 - 🐙 GitHub: [github.com/AyaAbuAli](https://github.com/AyaAbuAli)
